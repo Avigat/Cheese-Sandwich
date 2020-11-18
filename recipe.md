@@ -1,0 +1,1 @@
+Spread mayonnaise on 1 piece of bread using a knife, place a cheese slice on the mayonnaise, place the other piece of bread on the cheese slice, serve with tomato ketchup.
